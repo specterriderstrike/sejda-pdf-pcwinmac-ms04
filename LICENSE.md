@@ -1,4 +1,4 @@
-# 
+# New Sejda PDF templates for Mac OS | Ultimate Sejda PDF templates for PC Windows. Featuring cloud storage and direct deposit — optimized for maximum performance on every platform.
 
 
 
